@@ -3,8 +3,8 @@
 * 👩 Pronouns: Ekalal
 * 🔭 I’m currently working on icescrambol factory
 * 🌱 I’m currently learning Github
-* 🤝 I’m looking to collaborate on creating
-* 🤔 I’m looking for help with creating websites
+* 🤝 I’m looking to collaborate on di nag napkin
+* 🤔 I’m looking for help with ancient tombois
 * 💬 Ask me about your tomboy
 * 📫 How to reach me: call me daddy
 * ❤️ I love single mom
