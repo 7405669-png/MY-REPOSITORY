@@ -1,2 +1,11 @@
-# MY-REPOSITORY
-POGI KO
+<h1> Welcome to my profile </h1>
+* 👂 My name is Zander James Rabulan Alilano JR
+* 👩 Pronouns: Ekalal
+* 🔭 I’m currently working on icescrambol factory
+* 🌱 I’m currently learning Github
+* 🤝 I’m looking to collaborate on creating
+* 🤔 I’m looking for help with creating websites
+* 💬 Ask me about your tomboy
+* 📫 How to reach me: call me daddy
+* ❤️ I love single mom
+* ⚡ Fun fact: i can resset tomboy w/mio
